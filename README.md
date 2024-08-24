@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @tramswrld
+- 🌱 Hi, I’m @tramswrld
 - 💖 I’m interested in art, design, and tech
-- 📫 How to reach me nguyen421@usf.edu
-- 😄 Pronouns: she/her
+- 💌 How to reach me nguyen421@usf.edu
+- 🍓 Pronouns: she/her
 
 
 <!---
